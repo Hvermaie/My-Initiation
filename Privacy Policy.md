@@ -1,4 +1,4 @@
-                                                                                         <H1>     Privacy Policy    </H1>
+                                                                               Privacy Policy 
 
 
 User Provided Information
